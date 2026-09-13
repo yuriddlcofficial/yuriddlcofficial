@@ -23,7 +23,7 @@
  ${\textsf{\color{#C3B1E1}"I fictkin Yuri from DDLC . Doubles int if mutuals or friends ."}}$
 </p>
 <p align="left">
- ${\textsf{\color{#DA70D6}"Under 15 heavy dni . "}}$
+ ${\textsf{\color{#DA70D6}"Under 15 heavy dni . Aroace ."}}$
 </p>
 
 <p align="left">
