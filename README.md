@@ -17,7 +17,7 @@
 </p>
 
 <p align="left">
- ${\textsf{\color{#CCCCFF}"Haru . Bassie . Yuri . AuDHD . OCD . "}}$
+ ${\textsf{\color{#CCCCFF}"Haru . Bassie . Flutter . Mangle . AuDHD . OCD . "}}$
 </p>
 <p align="left">
  ${\textsf{\color{#C3B1E1}"I fictkin Yuri from DDLC . Doubles int if mutuals or friends ."}}$
